@@ -26,4 +26,4 @@ Hiện tại, Đức đang đảm nhận vai trò là Chủ tịch và Tổng gi
 
 Qua câu chuyện khởi nghiệp trên của Đức, thì chúng ta hiểu rằng không bao giờ là quá muộn để theo đuổi những hoài bão, những ước mơ khởi nghiệp vì mỗi ngày là một cơ hội mới để chúng ta bắt đầu. Dù bạn đã trưởng thành hay là đã có gia đình đi nữa, việc bắt đầu một doanh nghiệp có thể thay đổi cuộc sống của bạn cũng như đem đến nhiều trải nghiệm và con đường thành công. Quan trọng hơn hết đó chính là có đủ sự quyết tâm, kiên nhẫn và chăm chỉ, cũng như sẵn sàng học hỏi và tinh thần khởi nghiệp mạnh mẽ. Nắm bắt cơ hội và theo đuổi đam mê của chính mình là điều quan trọng nhất.
 
-Xem chi tiết tại đây: <a href="[https://neohouse.vn/biet-thu-2-tang-mai-thai/](https://appvaytien.vn/le-van-duc/)" rel="nofollow">[https://neohouse.vn/biet-thu-2-tang-mai-thai/](https://appvaytien.vn/le-van-duc/)</a>
+Xem chi tiết tại đây: <a href="[https://neohouse.vn/biet-thu-2-tang-mai-thai/](https://appvaytien.vn/le-van-duc/)" rel="nofollow">Appvaytien](https://appvaytien.vn/le-van-duc/)</a>
